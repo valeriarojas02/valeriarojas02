@@ -13,7 +13,7 @@ Passionate about innovation, entrepreneurship, and sustainability.
 
 ## 💞️ Looking to Collaborate On  
 - **Startups & Business Innovation** 🚀  
-- **Sustainability Projects** 🌎  
+- **Sustainability Projects**   
 - **Digital Transformation in Business** 💡  
 
 ## 🎾🏐 Hobbies & Sports  
@@ -24,7 +24,8 @@ I love playing **tennis and volleyball**, staying active, and enjoying outdoor s
 🔗 LinkedIn: [linkedin.com/in/valeriarojasacosta](https://www.linkedin.com/in/valeria-rojas-acosta-7722a5247/))  
 
 ## ⚡ Fun Fact  
-I love discovering new coffee shops ☕ and exploring cultures through food. 🍜🌍  
+I am fascinated by **Arab culture** and dream of visiting many countries in the **Middle East**. 
+Exploring their history, traditions, and cuisine is one of my biggest passions! 
 
 
 
